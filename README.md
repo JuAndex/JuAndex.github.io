@@ -1,1 +1,0 @@
-# JuAndex.github.io
